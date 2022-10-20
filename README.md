@@ -3,15 +3,19 @@ Solitaire Tower is a interesting& popular Card game that is ideal for all ages, 
 Now, let’s have a look of our top free solitaire game!
 
 <b>best solitaire game</b>
+
 Solitaire Tower is a challenging brain game that everyone can play for free!
 
 <b>Dedicated Game Design For You</b>
+
 All the cards, backgrounds and animations are perfectly designed ,you could choose various difficulties to challenge yourself
 
 <b>Diverse Artistic Themes</b>
+
 With dozens of Front patterns/Back patterns/Backgrounds, you could design your own style.
 
 <b>Exciting Daily Challenges For You</b>
+
 There are daily challenges for you to complete and win trophies
 
 <b>FEATURES:</b>
