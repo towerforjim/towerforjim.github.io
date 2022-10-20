@@ -15,16 +15,27 @@ With dozens of Front patterns/Back patterns/Backgrounds, you could design your o
 There are daily challenges for you to complete and win trophies
 
 <b>FEATURES:</b>
+
 🌵Free Solitaire Tower game
+
 🌵Perfect game interface with high quality
+
 🌵Enlarged version that will do no harm to eyes
+
 🌵Simple operation, each step can be completed by clicking or dragging
+
 🌵Tap to automatically choose the best move
+
 🌵right or Left handed mode
+
 🌵Time, move, statistics
+
 🌵Sound effect
+
 🌵Play offline, without wifi
+
 🌵More gameplays are waiting for you to explore...
+
 
 you Absolutely will enjoy our exciting Solitaire card game, also you could try our other free top fun Solitaire, like Freecell, solitaire and so on.
 
